@@ -9,7 +9,7 @@ In the competitive world of online forex trading, traders expect a seamless, tra
 
 
 
-![image]()
+![image](https://github.com/Trading-thoughts/Suxxess-FX-complaints/blob/da12b6ae43528844e7d0d9f4ce79d3d0a3d23ded/suxxess%20fx%20logo%202.PNG)
 
 Delayed Withdrawals: A Common Concern
 --------------------
